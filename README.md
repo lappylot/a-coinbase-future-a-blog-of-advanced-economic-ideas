@@ -1,3 +1,4 @@
+<img width="1024" height="1536" alt="image" src="https://github.com/user-attachments/assets/efdc34a3-78d8-46fc-81fd-efd5762556ab" />
 
 
 **To:** Brian Armstrong, Chief Executive Officer, Coinbase Global, Inc.

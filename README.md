@@ -3,6 +3,9 @@ Coinbase IDS(trader version not haxx)
 https://chatgpt.com/s/dr_68b28b300c088191a5bead96175f77ef
 
 
+# vibe === Me Brian, Sam, as Crypto AI ninjas
+
+<img width="1024" height="1024" alt="image" src="https://github.com/user-attachments/assets/aa02497f-5e85-4bad-abc4-90bbd5dcf664" />
 
 BRUCE LEE AI ON COINBASE CODING RN
 

@@ -1,7 +1,7 @@
 <img width="1024" height="1536" alt="image" src="https://github.com/user-attachments/assets/efdc34a3-78d8-46fc-81fd-efd5762556ab" />
 
 # Real world Test Demo on myself Below after letter 
-
+# Foss code use can be used at coinbase!! advanced agents!! https://github.com/openai/gpt-oss/blob/main/examples/agents-sdk-python/example.py
 **To:** Brian Armstrong, Chief Executive Officer, Coinbase Global, Inc.
 **Date:** August 29, 2025
 **Subject:** Envisioning Responsible AI & Ecological Incentives for a Better Financial Future

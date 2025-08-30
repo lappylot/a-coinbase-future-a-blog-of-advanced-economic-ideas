@@ -2,6 +2,12 @@ Coinbase IDS(trader version not haxx)
 
 https://chatgpt.com/s/dr_68b28b300c088191a5bead96175f77ef
 
+
+
+BRUCE LEE AI ON COINBASE CODING RN
+
+<img width="1124" height="1017" alt="image" src="https://github.com/user-attachments/assets/12487a35-de40-477b-ab92-501e70d5cbea" />
+
 LETS GOOOOOResearch completed in 3m · 11 sources · 87 searches
 
 Advanced Trading IDS for Coinbase

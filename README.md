@@ -114,7 +114,7 @@ These proposals are more than features—they’re foundational shifts. Integrat
 Thank you for your time and leadership. I hope this inspires further discussion on making trading safer, smarter, and greener for all.
 
 With respect and optimism toward the future,
-**\[Your Name]**
+**Gray
 
 ---
 
